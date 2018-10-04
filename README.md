@@ -1,3 +1,5 @@
 # hmm
-### Mijn naam is Leander kuiper ik ben 15 jaar oud en ik woon in Nederland!
-### ik vind sporten en gamen met mijn vrienden leuk. ook houd ik van katten.
+### Mijn naam is Leander Kruiden ik ben een profesioneel broodmakker
+###### ik heb masterchef Europe gewonnen met mijn broden
+ik identificeer als een apache female attack skateboard dus gebruik
+gewoon zij en haar AUB
